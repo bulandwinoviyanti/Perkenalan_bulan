@@ -5,8 +5,6 @@
 - **Tempat, Tanggal Lahir:** Semarang,4 November
 - **Umur:** 17 Tahun
 - **Hobi:** Membaca Novel Dan Menulis Novel Digital
-- **Ekspektasi Dari PKL:** Bisa Memahami Lebih Dalam Lagi Dan Lebih Baik Dari Sebelum" nya
-
 
 # Ekspektasi Setelah PKL Online 
 
