@@ -13,3 +13,5 @@ Bisa Memahami Lebih Dalam Lagi Dan Lebih Baik Dari Sebelum" nya
 <img width="735" height="812" alt="download (30)" src="https://github.com/user-attachments/assets/7983cd20-4eee-4339-b3b9-cca9c5b9c1f9" />
 
 Terima kasih sudah membaca perkenalan saya!
+
+SEMANGATT!!
