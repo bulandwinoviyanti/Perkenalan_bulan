@@ -15,3 +15,4 @@ Bisa Memahami Lebih Dalam Lagi Dan Lebih Baik Dari Sebelum" nya
 Terima kasih sudah membaca perkenalan saya!
 
 SEMANGATT!!
+Hobi:Membaca Novel
