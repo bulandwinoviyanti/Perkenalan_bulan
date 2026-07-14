@@ -16,3 +16,4 @@ Terima kasih sudah membaca perkenalan saya!
 
 SEMANGATT!!
 Hobi:Membaca Novel
+**Hobi:** Nonton Filem
